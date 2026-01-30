@@ -2,7 +2,7 @@
  
 <img src="https://github.com/joinme-indeath/shoomabtme/blob/main/Untitled656_20260130004507.png" width="892" height="196">
   
-### ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ *[strawpage](https://bemyownprivateparadise.straw.page)* ‎ ‎ ‎⊹ ࣪ ˖‎<img src="https://github.com/joinme-indeath/shoomabtme/blob/main/redrose.png">˖ ࣪ ⊹ ‎‎ ‎‎‎‎ ‎*‎[rentry](https://rentry.co/toliveinyoulikeparasite)*
+### ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ *[strawpage](https://bemyownprivateparadise.straw.page)* ‎ ‎ ‎⊹ ࣪ ˖‎<img src="https://github.com/joinme-indeath/shoomabtme/blob/main/redrose.png">˖ ࣪ ⊹ ‎‎ ‎‎‎‎ ‎*‎[rentry](https://rentry.co/toliveinyoulikeparasite)*
 
  </h4>
 
